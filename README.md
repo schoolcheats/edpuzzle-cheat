@@ -1,7 +1,7 @@
 # edpuzzle-cheat
 Cheat and answers for https://edpuzzle.com/ created by School Cheats
 
-## **All of the hacks are located at https://schoolcheats.net/**
+## **All of the hacks are located at https://schoolcheats.net/edpuzzle**
 
 # Edpuzzle Hacks
 
